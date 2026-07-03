@@ -1,4 +1,4 @@
-#  
+#  Experience adopt me like never before with ultimate Script for adopt me, the #1 Script. Includes auto-upgrade and auto-collect for unbeatable
 
 
 
